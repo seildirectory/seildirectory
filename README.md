@@ -1,5 +1,3 @@
-my [alt booohoo](https://github.com/Ieipzig)
-
 
 NO I AM NOT IN DANDY'S WORLD FANDOM NOR INTERESTED WITH IT ANYMORE STOP IT
 ![](https://files.catbox.moe/qapemo.png)
