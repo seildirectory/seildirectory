@@ -17,3 +17,9 @@ Phighting fans/whoever's interested in it do not interact, unless if you're my f
 
 
 Dandy's world,forsaken interact with extra caution.
+
+
+i love my qpp!
+
+
+![1000021744](https://github.com/user-attachments/assets/8a2dcc1b-840a-4e97-87e8-ce2b6c073faf)
