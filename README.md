@@ -13,6 +13,9 @@ I may or not get drastic mood swings, if that happens please give me space and t
 Im diagnosed with ADHD, so be patient with me :⁠^⁠)
 
 
+### MY PERSONALITY DEPENDS ON WHOEVER IM TALKING TO, DO NOT CONSIDER ME AS A SYSTEM.
+
+
 Phighting fans/whoever's interested in it do not interact, unless if you're my friend then I'll make a exception. 
 
 
