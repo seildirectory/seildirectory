@@ -32,3 +32,8 @@ i love my qpp!
 
 
 # big fan of roblox args btw, specifically seildirectory!
+
+
+![1000022760](https://github.com/user-attachments/assets/a529a731-0f41-47f0-86af-5d0f7fe5deb4)
+
+
