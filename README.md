@@ -1,3 +1,7 @@
+![1000023311](https://github.com/user-attachments/assets/75741846-28dc-430a-874c-95e4e7a7a151)
+
+
+
 hi i don't have any specific dni, just don't b weird 2 me ^_^
 
 
