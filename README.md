@@ -2,4 +2,4 @@
 
 
 blood debt fans int!
- BD FAN SINCE APRIL 6 
+ BD FAN SINCE APRIL 6 (one day after bd's creation) (yes im flexing)
