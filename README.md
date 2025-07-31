@@ -1,1 +1,7 @@
-mostly in regiscouts every now and then 
+![1000026309](https://github.com/user-attachments/assets/3bfb97bc-cc13-4848-a5c2-a9588229a2e2)
+![1000026581](https://github.com/user-attachments/assets/250393fb-9767-4bfc-9e48-4356310a8628)
+![1000027119](https://github.com/user-attachments/assets/0703b3ed-6e3f-4b5c-a976-a5c07c02b537)
+![1000027118](https://github.com/user-attachments/assets/24bb6990-cada-46b5-a6e4-05b5d9232b1a)
+![1000027120](https://github.com/user-attachments/assets/7ec2adcc-44eb-419c-8985-0beee664590a)
+![1000027140](https://github.com/user-attachments/assets/f6a5a9f0-1115-4092-9ac6-fa6b4efaad5a)
+![1000027143](https://github.com/user-attachments/assets/69b00d33-34e8-4e6a-8e94-e8dcc4342cee)
