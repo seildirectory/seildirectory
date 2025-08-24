@@ -1,5 +1,9 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![](https://komarev.com/ghpvc/?username=seildirectory&label=pizzas+delivered&color=red&base=25070&abbreviated=true)
-![](https://64.media.tumblr.com/a6a21ea536c792b59423e9839378a4be/ffdab70ce6f1468e-fa/s400x600/c44dfa89d3469959380f6d796a3f32e31ff1a216.gifv)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![](https://komarev.com/ghpvc/?username=seildirectory&label=nashelaide+yuri&color=red&base=25070&abbreviated=true)
+<p align="center">
+    <img width="300" src="https://64.media.tumblr.com/35c6f909277553ee80a028bf0fc26f2f/47e8e0544f703b62-57/s1280x1920/58ad496065008524448bd8cc36bfd41e1e35e239.pnj" alt="nashatraaa">
+</p>
 
 
-![](https://files.catbox.moe/nywbw4.jpg)
+<p align="center">
+ I live as if death had already separated us, such is the way I miss you.
+</p>
