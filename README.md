@@ -4,6 +4,3 @@
 </p>
 
 
-<p align="center">
- I live as if death had already separated us, such is the way I miss you.
-</p>
