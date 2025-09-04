@@ -7,4 +7,4 @@
 inactive been busy on schoolwork
 
 
-didnt get the chance to play pt sorryMostly online just for regi purposes
+and also ive been demotivated to continue on playing pt, might quit or just be inactive forever:shrug:
