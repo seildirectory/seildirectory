@@ -4,3 +4,7 @@
 </p>
 
 
+inactive been busy on schoolwork
+
+
+didnt get the chance to play pt sorryMostly online just for regi purposes
