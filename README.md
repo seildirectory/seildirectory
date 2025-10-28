@@ -2,8 +2,8 @@
 
 
 
-i quit pt >_> been focusing on frozen souling rn (or dream gameing idk)
+life is shitty lately
 
 
-PIE HIKING ACTIVITIES ![](https://64.media.tumblr.com/bac02e15504f298d5c169e731822cd78/4daf773224ef744f-39/s250x400/a377de9153b050d92c51b10cfbbec697c51d2acc.pnj)
+![](https://64.media.tumblr.com/bac02e15504f298d5c169e731822cd78/4daf773224ef744f-39/s250x400/a377de9153b050d92c51b10cfbbec697c51d2acc.pnj)
 
