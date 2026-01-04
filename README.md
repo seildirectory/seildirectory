@@ -1,6 +1,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![](https://komarev.com/ghpvc/?username=seildirectory&label=victims+dead&color=red&base=25070&abbreviated=true)
 
 
+2026 IS THE YEAR I DIDN'T BOUGHT MY 2024 FRIENDS TO!!!!!! 
+
 ![1000056033](https://github.com/user-attachments/assets/2f483868-cffc-4a59-b1a5-7c15823a92df)
 ![1000056034](https://github.com/user-attachments/assets/be4d6b64-54d1-4981-8fec-302aa291b7af)
 ![1000055926](https://github.com/user-attachments/assets/6250b826-a1df-4811-a9fa-5d7d5eafd06d)
