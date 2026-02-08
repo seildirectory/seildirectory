@@ -1,1 +1,5 @@
+MY STYLES VARY OVERTIME !! IM EXPERIMENTING WITH COLORS SO PLEASE DON'T ACCUSE ME OF COPYING,, ^_^
+
+
+![1000062496](https://github.com/user-attachments/assets/9ff819c6-b52b-4e68-8a66-ccdc68c42d1c)
 
