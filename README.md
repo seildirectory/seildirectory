@@ -1,4 +1,12 @@
-> These places better keep my eyes on the present, for there's only pain in looking back.
+> ᵗʰᵉʳᵉ ᵃʳᵉ ˡᵃᵇᵒʳᵉʳˢ, ˢᵒˡᵈᶦᵉʳˢ, ᵖᵒˡᶦᵗᶦᶜᶦᵃⁿˢ, ᵗʰᵉ ᵘᵖᵖᵉʳ⁻ᶜˡᵃˢˢ, ᵃⁿᵈ ˢᵒ ᶠᵒʳᵗʰ...
 
 
-![](https://files.catbox.moe/805sxz.jpg)
+
+_ _ _
+
+![](https://files.catbox.moe/09grgh.png)
+
+_ _ _
+
+
+> ʸᵉᵗ ʷᵉ ᵃˡˡ ᵉⁿᵈ ᵗʰᵉ ˢᵃᵐᵉ, ʷᶦᵗʰ ᵗʰᵉ ᵉᵃʳᵗʰ ᶜᵒᵛᵉʳᶦⁿᵍ ᵒᵘʳ ᵇᵒⁿᵉˢ.
