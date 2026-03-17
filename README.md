@@ -15,4 +15,3 @@ _ _ _
 ![](https://files.catbox.moe/rys8av.png)
 
 
-i'll remake this eventually,, :-)
