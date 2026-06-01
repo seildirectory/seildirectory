@@ -1,4 +1,5 @@
-not planning to play pt anymore . goodbye everynyan~
+only occasionally on if oomf/partner tells me to hop on!
+
 
 
 
