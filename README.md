@@ -1,5 +1,4 @@
-before u say im [...] larper, u don't even know me don't pretend u know me you fuckass fake
-
+dignity & griefer superfan. I love them Lots Okay (⁠灬⁠º⁠‿⁠º⁠灬⁠)⁠♡
 
 
 
