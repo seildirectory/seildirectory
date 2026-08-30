@@ -1,15 +1,9 @@
-
-
-onlyActive occasionally
-
-
-<img width="1348" height="2048" alt="1000099028" src="https://github.com/user-attachments/assets/4c8b8a5e-7cc2-4543-b6ac-d938c065c864" />
+Im always afk on ponytown Lol #playtimefarming
 
 
 
-im gay and i want to play
+<img width="2030" height="1116" alt="1000099603" src="https://github.com/user-attachments/assets/b6d971b4-76ec-4e86-8df9-9a505352773f" />
 
 
-[typology tabl](https://docs.google.com/document/d/1tHP5-nYUFnXw5_p3uxt_-yRvf3XT7a9PESMhftbFNtw/edit?usp=drivesdk)
-
+[typology table!](https://docs.google.com/document/d/1tHP5-nYUFnXw5_p3uxt_-yRvf3XT7a9PESMhftbFNtw/edit?usp=drivesdk)
 
