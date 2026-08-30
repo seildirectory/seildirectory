@@ -1,9 +1,10 @@
 
 
-be my friend PLEASE!
+onlyActive occasionally
 
 
-<img width="1797" height="1254" alt="1000096630" src="https://github.com/user-attachments/assets/d5efbd98-685e-4eca-b100-2b5a267c60f5" />
+<img width="1348" height="2048" alt="1000099028" src="https://github.com/user-attachments/assets/4c8b8a5e-7cc2-4543-b6ac-d938c065c864" />
+
 
 
 im gay and i want to play
