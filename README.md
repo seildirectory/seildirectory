@@ -1,9 +1,43 @@
-Im always afk on ponytown Lol #playtimefarming
+<div align="center">
+  
+                                      
+
+</p>
+       ‎ 
+ <img width="70" alt="wow thats alot of you" src="https://komarev.com/ghpvc/?username=pixelbrickz&color=000000&label=🪽"> 
+  ‎ ‎  ‎ 
+    <div align="center">
 
 
 
-<img width="2030" height="1116" alt="1000099603" src="https://github.com/user-attachments/assets/b6d971b4-76ec-4e86-8df9-9a505352773f" />
+    
+
+    
+
+<img width="50%" height="50%" src="https://files.catbox.moe/4z8otz.png" />
+
+ㅤㅤㅤ
+
+  $\texttt{\color{#4694bb}hello i am sushi, my prns are h3/hx}$ $\texttt{\color{#A90000}I am Bigender and Fujodanshi}$
 
 
-[typology table!](https://docs.google.com/document/d/1tHP5-nYUFnXw5_p3uxt_-yRvf3XT7a9PESMhftbFNtw/edit?usp=drivesdk)
 
+ $\texttt{\color{#DDDCAB} -13 iwec }$
+
+  
+<details>
+<summary> </summary>
+BYI:
+
+I am a veryy forgetful person, sometimes i forgot basic things! So please if i forgot something Pleaseee remind me. I suspected that i have Amnesia or something, alongside with BPD and Bipolar.
+
+DNI:
+
+Proship/Darkship, T.R.A.S.H, Itzskeet_playz fandom/fans, Roblox myth fans, makes very weird jokes. I BLOCK VERY FREELY AND DO NOT ASK WHY I BLOCKED YOU
+ㅤㅤㅤ
+</details>
+ ㅤ
+
+[Atabook](https://pwned.atabook.org/) [Prns.cc](https://pronouns.cc/@devesto)
+
+</p>
