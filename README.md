@@ -16,6 +16,7 @@
 <img width="50%" height="50%" src="https://files.catbox.moe/4z8otz.png" />
 
 ㅤㅤㅤ
+BACK IN MY DAYS GETTING 100+ FOLLOWERS WERE SO HARD
 
   $\texttt{\color{#4694bb}hello i am sushi, my prns are h3/hx}$ $\texttt{\color{#A90000}I am Bigender and Fujodanshi}$
 
