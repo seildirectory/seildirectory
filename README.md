@@ -1,43 +1,40 @@
 <div align="center">
+
+
+
+</p>
+
+<img width="1075" height="266" alt="1000106106" src="https://github.com/user-attachments/assets/49ac3422-8bee-4b11-96ac-06676a642c40" /> 
   
                                       
 
-</p>
-       ‎ 
-  ‎ ‎  ‎ 
-    <div align="center">
+
+<img src="https://files.catbox.moe/so79vw.png" width="350" align="left"> 
+
+<img src="https://files.catbox.moe/wnangc.png" width="300" align="left">
+
+<br>  
+  <table>
+    <tr>
+      <td>
+    wip
+      </td>
+    </tr>
+  </table>
 
 
 
+
+ <details>
+  <summary> wip </summary>
+   wip
     
+ </details>
 
-    
-
-<img width="50%" height="50%" src="https://files.catbox.moe/4z8otz.png" />
-
-ㅤㅤㅤ
-BACK IN MY DAYS GETTING 100+ FOLLOWERS WERE SO HARD
-
-  $\texttt{\color{#4694bb}hello i am sushi, my prns are h3/hx}$ $\texttt{\color{#A90000}I am Bigender and Fujodanshi}$
+<img src="https://files.catbox.moe/1m9khi.png" width="300" align="left">
 
 
 
- $\texttt{\color{#DDDCAB} -13 iwec }$
 
-  
-<details>
-<summary> </summary>
-BYI:
-
-I am a veryy forgetful person, sometimes i forgot basic things! So please if i forgot something Pleaseee remind me. I suspected that i have Amnesia or something, alongside with BPD and Bipolar.
-
-DNI:
-
-Proship/Darkship, T.R.A.S.H, Itzskeet_playz fandom/fans, Roblox myth fans, makes very weird jokes. I BLOCK VERY FREELY AND DO NOT ASK WHY I BLOCKED YOU
-ㅤㅤㅤ
-</details>
- ㅤ
-
-[Atabook](https://pwned.atabook.org/) [Prns.cc](https://pronouns.cc/@devesto)
-
+<img width="400" height="99" alt="1000106107" src="https://github.com/user-attachments/assets/1976390f-1217-47a3-b027-e619a6e91e2e" />
 </p>
