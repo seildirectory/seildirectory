@@ -31,8 +31,6 @@
     
  </details>
 
-<img src="https://files.catbox.moe/1m9khi.png" width="300" align="left">
-
 
 
 
