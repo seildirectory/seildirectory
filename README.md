@@ -11,7 +11,6 @@
 
 <img src="https://files.catbox.moe/so79vw.png" width="350" align="left"> 
 
-<img src="https://files.catbox.moe/wnangc.png" width="300" align="left">
 
 <br>  
   <table>
@@ -30,6 +29,15 @@
    Lorem ipsum dolor sit amet consectetur adipiscing elit. Consectetur adipiscing elit quisque faucibus ex sapien vitae. Ex sapien vitae pellentesque sem placerat in id. Placerat in id cursus mi pretium tellus duis. Pretium tellus duis convallis tempus leo eu aenean.
     
  </details>
+
+   <table>
+    <tr>
+      <td>
+    Lorem ipsum dolor sit amet consectetur adipiscing elit. Consectetur adipiscing elit quisque faucibus ex sapien vitae. Ex sapien vitae pellentesque sem placerat in id. Placerat in id cursus mi pretium tellus duis. Pretium tellus duis convallis tempus leo eu aenean.
+      </td>
+    </tr>
+  </table>
+  
 
 
 
