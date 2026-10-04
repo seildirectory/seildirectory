@@ -1,6 +1,6 @@
 <div align="center">
 
-# 19 DAYS UNTIL MY BIRTHDAY !
+# 19 DAYS UNTIL MY BIRTHDAY 🎉 !
 
 
 </p>
@@ -31,7 +31,7 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
 
  <details>
   <summary> ${\textsf{\color{#E0A8C5}DNI}}$ </summary>
-   Lorem ipsum dolor sit amet consectetur adipiscing elit. Consectetur adipiscing elit quisque faucibus ex sapien vitae. Ex sapien vitae pellentesque sem placerat in id. Placerat in id cursus mi pretium tellus duis. Pretium tellus duis convallis tempus leo eu aenean.
+   ${\textsf{\color{#F0E4E5}T.R.A.S.H Radqueers Incest Proshippers/Darkshippers }}$ ${\textsf{\color{#819CBB}Roblox Myth fans interested in Itz skeetplayz or a fan of it. }}$ ${\textsf{\color{#C88BB4}I block freely 𓂃˖ ࣪⊹}}$
     
  </details>
 
