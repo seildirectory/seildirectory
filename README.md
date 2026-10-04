@@ -31,7 +31,7 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
 
  <details>
   <summary> ${\textsf{\color{#E0A8C5}Interests}}$ </summary>
-   ${\textsf{\color{#F0E4E5}Typology Limbobbia}}$ ${\textsf{\color{#819CBB}Roblox }}$ ${\textsf{\color{#C88BB4}Frozen Soul}}$ ${\textsf{\color{#9C89B0}202x}}$ ${\textsf{\color{#575581} and alot more !}}$
+   ${\textsf{\color{#F0E4E5}Typology Limbobbia}}$ ${\textsf{\color{#819CBB}Roblox}}$ ${\textsf{\color{#C88BB4}Frozen Soul}}$ ${\textsf{\color{#9C89B0}202x}}$ ${\textsf{\color{#575581}and alot more !}}$
     
  </details>
 
