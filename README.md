@@ -35,10 +35,16 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
     
  </details>
 
+
+
+<img src="https://files.catbox.moe/b1vfpc.png" width="300" align="left">
    <table>
     <tr>
       <td>
-    Lorem ipsum dolor sit amet consectetur adipiscing elit. Consectetur adipiscing elit quisque faucibus ex sapien vitae. Ex sapien vitae pellentesque sem placerat in id. Placerat in id cursus mi pretium tellus duis. Pretium tellus duis convallis tempus leo eu aenean.
+    ${\textsf{\color{#F0E4E5}Slip}}$ ${\textsf{\color{#819CBB}me}}$ ${\textsf{\color{#C88BB4}in}}$ ${\textsf{\color{#9C89B0}your}}$ ${\textsf{\color{#575581}pocket}}$ ${\textsf{\color{#484266}⋆.𐙚 ̊}}$ 
+
+
+${\textsf{\color{#F0E4E5}˚˖𓍢ִ໋❀}}$ ${\textsf{\color{#819CBB}Chicka}}$ ${\textsf{\color{#C88BB4}chew}}$ ${\textsf{\color{#9C89B0}on}}$ ${\textsf{\color{#575581}my way}}$ ${\textsf{\color{#484266}out}}$ 
       </td>
     </tr>
   </table>
