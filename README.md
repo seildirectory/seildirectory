@@ -30,8 +30,8 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
 
 
  <details>
-  <summary> ${\textsf{\color{#E0A8C5}DNI}}$ </summary>
-   ${\textsf{\color{#F0E4E5}T.R.A.S.H Radqueers Incest Proshippers/Darkshippers }}$ ${\textsf{\color{#819CBB}Roblox Myth fans interested in Itz skeetplayz or a fan of it. }}$ ${\textsf{\color{#C88BB4}I block freely 𓂃˖ ࣪⊹}}$
+  <summary> ${\textsf{\color{#E0A8C5}Interests}}$ </summary>
+   ${\textsf{\color{#F0E4E5}Typology Limbobbia}}$ ${\textsf{\color{#819CBB}Roblox }}$ ${\textsf{\color{#C88BB4}Frozen Soul}}$ ${\textsf{\color{#9C89B0}202x}}$ ${\textsf{\color{#575581} and alot more !}}$
     
  </details>
 
