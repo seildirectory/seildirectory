@@ -41,10 +41,10 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
    <table>
     <tr>
       <td>
-    ${\textsf{\color{#F0E4E5}Slip}}$ ${\textsf{\color{#819CBB}me}}$ ${\textsf{\color{#C88BB4}in}}$ ${\textsf{\color{#9C89B0}your}}$ ${\textsf{\color{#575581}pocket}}$ ${\textsf{\color{#484266}⋆.𐙚 ̊}}$ 
+     <img src="https://files.catbox.moe/19kiqz.gif"width="20"> ${\textsf{\color{#F0E4E5}Slip}}$ ${\textsf{\color{#819CBB}me}}$ ${\textsf{\color{#C88BB4}in}}$ ${\textsf{\color{#9C89B0}your}}$ ${\textsf{\color{#575581}pocket}}$ ${\textsf{\color{#484266}!}}$ 
 
 
-${\textsf{\color{#F0E4E5}˚˖𓍢ִ໋❀}}$ ${\textsf{\color{#819CBB}Chicka}}$ ${\textsf{\color{#C88BB4}chew}}$ ${\textsf{\color{#9C89B0}on}}$ ${\textsf{\color{#575581}my way}}$ ${\textsf{\color{#484266}out}}$ 
+ ${\textsf{\color{#F0E4E5}Chicka}}$ ${\textsf{\color{#819CBB}chew}}$ ${\textsf{\color{#C88BB4}on}}$ ${\textsf{\color{#9C89B0}my}}$ ${\textsf{\color{#575581}way}}$ ${\textsf{\color{#484266}out}}$ ${\textsf{\color{#F0E4E5}:꣓}}$
       </td>
     </tr>
   </table>
