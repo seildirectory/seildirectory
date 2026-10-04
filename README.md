@@ -5,7 +5,7 @@
 
 </p>
 
-<img width="1075" height="266" alt="1000106106" src="https://missgrace.carrd.co/assets/images/image03.png?v=b1f006df" /> 
+![](https://missgrace.carrd.co/assets/images/image03.png?v=b1f006df)
   
                                       
 
@@ -45,5 +45,5 @@ Roblox arg and construction fans are on thin ice currently. I also block freely,
 
 
 
-<img width="400" height="99" alt="1000106107" src="https://missgrace.carrd.co/assets/images/image14.png?v=b1f006df" />
+![](https://missgrace.carrd.co/assets/images/image14.png?v=b1f006df)
 </p>
