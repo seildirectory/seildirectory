@@ -18,8 +18,10 @@
   <table>
     <tr>
       <td>
-    DNI; Proshippers/Darkshippers, Incest, Radqueers, Itzskeet_playz fans, Roblox myth fans (ESPECIALLY THE DISTRICT FORCES AND TDU)
-Roblox arg and construction fans are on thin ice currently. I also block freely, and do not ask for reasons on why its mostly personal and you probably made me uncomfortable :_ i dont block very often though
+    ${\textsf{\color{#F0E4E5}I'm}}$ ${\textsf{\color{#819CBB}out}}$ ${\textsf{\color{#C88BB4}on}}$ ${\textsf{\color{#9C89B0}the}}$ ${\textsf{\color{#575581}block}}$ ${\textsf{\color{#484266}again}}$        <img src="https://files.catbox.moe/2hwcik.gif"width="20">
+
+
+${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\color{#C88BB4}that}}$ ${\textsf{\color{#9C89B0}i}}$ ${\textsf{\color{#575581}can't}}$ ${\textsf{\color{#484266}pretend !}}$
       </td>
     </tr>
   </table>
@@ -28,7 +30,7 @@ Roblox arg and construction fans are on thin ice currently. I also block freely,
 
 
  <details>
-  <summary> placehod;ler </summary>
+  <summary> ${\textsf{\color{#E0A8C5}DNI}}$ </summary>
    Lorem ipsum dolor sit amet consectetur adipiscing elit. Consectetur adipiscing elit quisque faucibus ex sapien vitae. Ex sapien vitae pellentesque sem placerat in id. Placerat in id cursus mi pretium tellus duis. Pretium tellus duis convallis tempus leo eu aenean.
     
  </details>
