@@ -35,6 +35,8 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
     
  </details>
 
+ 
+${\textsf{\color{#F0E4E5}ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [prns cc](https://pronouns.cc/@devesto)
 
 
 <img src="https://files.catbox.moe/b1vfpc.png" width="300" align="left">
