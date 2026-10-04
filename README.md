@@ -5,13 +5,14 @@
 
 </p>
 
-<img width="1075" height="266" alt="1000106106" src="https://github.com/user-attachments/assets/49ac3422-8bee-4b11-96ac-06676a642c40" /> 
+<img width="1075" height="266" alt="1000106106" src="https://missgrace.carrd.co/assets/images/image03.png?v=b1f006df" /> 
   
                                       
 
 
-<img src="https://files.catbox.moe/so79vw.png" width="350" align="left"> 
+![](https://missgrace.carrd.co/assets/images/image04.png?v=b1f006df)
 
+<img src="https://files.catbox.moe/q4zhhi.png" width="300" align="left">
 
 <br>  
   <table>
