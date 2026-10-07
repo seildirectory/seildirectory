@@ -38,6 +38,11 @@ ${\textsf{\color{#F0E4E5}So hopped}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\
  
 ${\textsf{\color{#F0E4E5}ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [prns cc](https://pronouns.cc/@devesto) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/noli)
 
+<details>
+  <summary> ${\textsf{\color{#E0A8C5}DNI}}$ </summary>
+   ${\textsf{\color{#F0E4E5}RoARG fans, Rblx myth fans}}$ ${\textsf{\color{#819CBB}Proship/darkship}}$ ${\textsf{\color{#C88BB4}Radqueers}}$ ${\textsf{\color{#9C89B0}T.R.A.S.H}}$ ${\textsf{\color{#575581}Please have common sense}}$
+    
+ </details>
 
 <img src="https://files.catbox.moe/b1vfpc.png" width="300" align="left">
    <table>
