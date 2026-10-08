@@ -40,7 +40,7 @@ ${\textsf{\color{#F0E4E5}ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$ [新book](htt
 
 <details>
   <summary> ${\textsf{\color{#E0A8C5}DNI}}$ </summary>
-   ${\textsf{\color{#F0E4E5}Itzskeet, Rblx myth fans}}$ ${\textsf{\color{#819CBB}Proship/darkship}}$ ${\textsf{\color{#C88BB4}Radqueers}}$ ${\textsf{\color{#9C89B0}T.R.A.S.H}}$ ${\textsf{\color{#575581}Please have common sense}}$ ${\textsf{\color{#F0E4E5}RoARG fans in extremely thin ice}}$
+   ${\textsf{\color{#F0E4E5}Rblx myth fans}}$ ${\textsf{\color{#819CBB}Proship/darkship}}$ ${\textsf{\color{#C88BB4}Radqueers}}$ ${\textsf{\color{#9C89B0}T.R.A.S.H}}$ ${\textsf{\color{#575581}Please have common sense}}$ ${\textsf{\color{#F0E4E5} Construction fans are in thin ice}}$
     
  </details>
 
