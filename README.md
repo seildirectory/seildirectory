@@ -61,4 +61,6 @@ ${\textsf{\color{#F0E4E5}ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$ [新book](htt
 
 
 ![](https://missgrace.carrd.co/assets/images/image14.png?v=b1f006df)
+<img width="196" height="220" alt="1000109728" src="https://github.com/user-attachments/assets/8baa8bbd-888b-4db3-b462-035bab8601e1" />
+<img width="188" height="240" alt="1000109727" src="https://github.com/user-attachments/assets/f7e7ab43-e71c-4c44-a18c-007bda8b4514" /> My awful skins
 </p>
