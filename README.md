@@ -1,6 +1,6 @@
 <div align="center">
 
-# 10 DAYS UNTIL MY BIRTHDAY 🎉 ! 23/10
+# 8 DAYS UNTIL MY BIRTHDAY 🎉 ! 23/10
 
 
 </p>
