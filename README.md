@@ -61,10 +61,12 @@ ${\textsf{\color{#F0E4E5}ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$ [新book](htt
 
 
 
-<img width="342" height="190" alt="1000110264" src="https://github.com/user-attachments/assets/db79c993-7682-42cb-99b3-92a67b90c9c2" />
-<img width="357" height="374" alt="1000110582" src="https://github.com/user-attachments/assets/04422c9c-14b5-4c6a-a647-121a7d28a7a1" />
+
 
 ![](https://missgrace.carrd.co/assets/images/image14.png?v=b1f006df)
+<img width="435" height="120" alt="1000110581" src="https://github.com/user-attachments/assets/ef4495ff-d01a-4472-ada0-61cbe408e64d" />
+<img width="357" height="374" alt="1000110582" src="https://github.com/user-attachments/assets/384f8455-70ec-4807-b25f-e9a41d35bc70" />
+<img width="178" height="123" alt="1000110583" src="https://github.com/user-attachments/assets/3125d2ef-bab1-4e97-807d-cf4727aad910" />
 <img width="196" height="220" alt="1000109728" src="https://github.com/user-attachments/assets/8baa8bbd-888b-4db3-b462-035bab8601e1" />
 <img width="188" height="240" alt="1000109727" src="https://github.com/user-attachments/assets/f7e7ab43-e71c-4c44-a18c-007bda8b4514" /> My awful skins
 </p>
