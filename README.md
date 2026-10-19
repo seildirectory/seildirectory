@@ -1,7 +1,7 @@
 <div align="center">
 <img width="366" height="253" alt="1000110467" src="https://github.com/user-attachments/assets/27933281-c34a-4d4e-bb25-60477c3e23e4" />
 
-# 5? DAYS UNTIL MY BIRTHDAY 🎉 ! 23/10
+# 4 DAYS UNTIL MY BIRTHDAY 🎉 ! 23/10
 
 
 </p>
