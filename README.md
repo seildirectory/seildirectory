@@ -24,7 +24,7 @@
    <details>
   <summary> ${\textsf{\color{#E1CBC3}friends}}$ </summary>
      
-casinolings: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
+${\textsf{\color{#974BC9}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
 
 ro7loxians: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@mijisua](https://github.com/mijisua) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
      
