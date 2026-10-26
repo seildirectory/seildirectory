@@ -26,7 +26,7 @@
      
 ${\textsf{\color{#974BC9}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
 
-${\textsf{\color{#5E9DAE}ro7loxians}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@mijisua](https://github.com/mijisua) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
+${\textsf{\color{#5E9DAE}ro7loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@mijisua](https://github.com/mijisua) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
 
 friends! : ghoul/finn, fuzi,  nyxx, crane, teri, ken, milo, travis, ivan, kizu, kaleb, jet, glain
 
