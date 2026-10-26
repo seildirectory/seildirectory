@@ -20,5 +20,12 @@
    </details>
    
    ${\textsf{\color{#E1CBC3}  . ۫ ꣑ৎ   .  🪽 ⊹ ࣪ ˖}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/noli)
+
+   <details>
+  <summary> ${\textsf{\color{#E1CBC3}friends}}$ </summary>
+     [@chance](https://github.com/casino-flush)
+     
+
+   </details>
   
   </p>
