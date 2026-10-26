@@ -8,5 +8,5 @@
   <table>
     <tr>
       <td>
-    ${\textsf{\color{#060612}Johnny}}$ ${\textsf{\color{#410A7F}don't leave}}$ ${\textsf{\color{#974BC9}me,}}$ ${\textsf{\color{#5E9DAE}you said}}$ ${\textsf{\color{#CFB3CC}you'd love}}$ ${\textsf{\color{#E1CBC3}me forever♡}}$
+    ${\textsf{\color{#E1CBC3}Johnny}}$ ${\textsf{\color{#CFB3CC}don't leave}}$ ${\textsf{\color{#5E9DAE}me,}}$ ${\textsf{\color{#974BC9}you said}}$ ${\textsf{\color{#410A7F}you'd love}}$ ${\textsf{\color{#060612}me forever♡}}$
 </p>
