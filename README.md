@@ -1,7 +1,7 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=seildirectory&color=dc143c&label=˖.𖥔)
+  ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔)
   
-  ![](https://files.catbox.moe/lhn2vx.png)
+  ![](https://files.catbox.moe/xhvrke.png)
 wip
 </p>
