@@ -14,7 +14,7 @@
   </table>
 
 <details>
-  <summary> ${\textsf{\color{#E0A8C5}Interests}}$ </summary>
-   ${\textsf{\color{#F0E4E5}Metal Cardbot Typology  }}$ ${\textsf{\color{#819CBB}Steven Universe }}$ ${\textsf{\color{#C88BB4}Ghost in the cell}}$ ${\textsf{\color{#9C89B0}Among Us}}$ ${\textsf{\color{#575581} and more !}}$
+  <summary> ${\textsf{\color{#E1CBC3}DNI}}$ </summary>
+   ${\textsf{\color{#E1CBC3}Proship/Darkship  }}$ ${\textsf{\color{#CFB3CC}T.R.A.S.H }}$ ${\textsf{\color{#5E9DAE}Radqueers}}$ ${\textsf{\color{#974BC9}Rblx myth fans}}$ ${\textsf{\color{#410A7F}have common sense !}}$
   
   </p>
