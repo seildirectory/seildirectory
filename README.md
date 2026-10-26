@@ -16,5 +16,8 @@
 <details>
   <summary> ${\textsf{\color{#E1CBC3}DNI}}$ </summary>
    ${\textsf{\color{#E1CBC3}Proship/Darkship  }}$ ${\textsf{\color{#CFB3CC}T.R.A.S.H }}$ ${\textsf{\color{#5E9DAE}Radqueers}}$ ${\textsf{\color{#974BC9}Rblx myth fans}}$ ${\textsf{\color{#410A7F}have common sense !}}$
+
+   </details>
+   ${\textsf{\color{#E1CBC3}  . ۫ ꣑ৎ   .  🪽 ⊹ ࣪ ˖}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/noli)
   
   </p>
