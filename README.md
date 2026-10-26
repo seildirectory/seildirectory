@@ -23,7 +23,8 @@
 
    <details>
   <summary> ${\textsf{\color{#E1CBC3}friends}}$ </summary>
-     [@chance](https://github.com/casino-flush)
+     
+casinolings: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover)
      
 
    </details>
