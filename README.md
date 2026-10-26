@@ -31,6 +31,10 @@ ${\textsf{\color{#5E9DAE}ro7loxians}}$: [@pwppy](https://github.com/pwppy) [@hea
 friends! : ghoul/finn, fuzi,  nyxx, crane, teri, ken, milo, travis, ivan, kizu, kaleb, jet, glain
 
 shout out to paw, pon!
+
+<img width="228" height="322" alt="1000112344" src="https://github.com/user-attachments/assets/54753708-7125-4255-939a-ae163969e057" />
+<img width="242" height="113" alt="1000112343" src="https://github.com/user-attachments/assets/667cc4ea-d77b-4511-b7a0-7e44537088b1" />
+
      
 
    </details>
