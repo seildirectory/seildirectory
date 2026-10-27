@@ -1,6 +1,6 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔)
+  ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔&base=6767676767)
   
   ![](https://files.catbox.moe/rrmw6i.png)
 
